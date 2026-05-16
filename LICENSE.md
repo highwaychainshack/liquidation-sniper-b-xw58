@@ -1,4 +1,4 @@
-# 
+# liquidation sniper bot smart Algorithm | high-frequency & price-monitoring is the best liquidation sniper bot, featuring high-frequency and price-monitoring. Smart, fast, and
 
 
 
